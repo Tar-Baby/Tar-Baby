@@ -6,5 +6,5 @@
 - 👯 I’m looking to collaborate on poopy weas
 - 🤔 I’m looking for help with Web Development and Creative Coding
 - 💬 Ask me about CASO CERRADO, JOJOS, SONIC, LAURA BOZZO, and the likes
-- 📫 How to reach me: email me at violeta.alicia@hotmail.com
+- 📫 How to reach me: check out the contact info on my website
 - ⚡ Fun fact: I have a black kitty called Julie that is actually a tiny lord of darkness 🦇
