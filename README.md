@@ -8,4 +8,4 @@
 - 💬 Ask me about CASO CERRADO, JOJOS, SONIC, LAURA BOZZO, Vaporwave, Girl Tech, Glitch Art and the likes
 - 📫 How to reach me: check out the contact info on my website
 - ⚡ Fun fact: I have a black kitty called Julie that is actually a tiny lord of darkness 🦇
-- 🌻 Impulsive thought of the month: I want to create a cyber deck!
+- 🌻 Impulsive thought of the month: I want to build a cyber deck and cute beaded rings!
